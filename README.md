@@ -1,2 +1,36 @@
 # FNF-Mod
 VS ISO MOD
+
+# Created By ISOPL
+
+
+
+
+
+ISOPL PREZENTUJE
+
+
+
+
+VS ISO MOD
+
+
+
+PORĄBANY,
+
+
+SKOPIOWANY,
+
+
+I PEDALSKI MOD
+
+
+
+
+
+
+
+
+
+VS ISO MOD
+Ver. 0.3
